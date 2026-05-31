@@ -636,5 +636,5 @@ With adequate funding and execution, the platform is projected to achieve profit
 
 **Contact for Questions**:  
 Asif Khan  
-Email: asif@smartfooddelivery.com  
-Phone: +92 3XX XXXX XXX
+Email: eng.asifkhan.uom@gmail.com  
+Phone: +92 3030345009
